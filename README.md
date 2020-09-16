@@ -1,1 +1,1 @@
-# rsschool-cv
+https://GrinningTroll.github.io/rsschool-cv/cv
